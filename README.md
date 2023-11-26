@@ -9,4 +9,4 @@
 
 3. Slides link: https://docs.google.com/presentation/d/1XQEGbJZ9Xlelhmc8N1LZ3qhDuTTbrOeYptC1eaQN3kg/edit?usp=sharing
 
-4. Video link:
+4. Video link: https://drive.google.com/file/d/1kZYFXDcpVr8qaoOuimmEOlOh1Ba_B4X8/view?usp=drive_link
